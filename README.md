@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MARIAMBAKRE
-- 👀 I’m interested in Product Designs
-- 🌱 I’m currently learning UI/UX PRODUCT DESIGN
+- 👀 I’m  a UI/UX Product Designer
+- 🌱 PRODUCT DESIGN,DEVELOPMENT AND BUSINESS 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Mariambakre245@gmail.com
 
